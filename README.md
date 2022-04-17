@@ -1,0 +1,2 @@
+# miniproject
+MUSHROOM DISEASE [REDICTION
